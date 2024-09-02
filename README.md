@@ -4,7 +4,7 @@
 
 - 📫 How to reach me, don't.
 
-- ⚡ Fun fact: ambidextrous afficionado.
+- ⚡ Fun fact: I dont like the beach.
 
 <!---
 L00ptyl00p/L00ptyl00p is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
